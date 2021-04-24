@@ -1,6 +1,22 @@
-### Intro 
-Logo Editing Master is an YouTube #Everyone Server Hoster which can do Logo Editing And much more to create with #Everyone Servers. These multiple YouTube Account Users on a Single Computer are created to make us dream a reality, with #Everyone Servers. My previous name was Scratch, but on Starting with Logo Editing i changed the name into SGDF HD. Later on we Changed my channel names: Baby Tank, Arena Closer, Mope.io Editor, GuardianOfThePentagons, and then for today We changed the name into "Logo Editing Master". Now the most Best YouTube Channel in 2017 is [Simba's Piano Elipse](https://www.youtube.com/channel/UCPshfUdjkP5dzONwbAkihHg). [Simba's Piano Elipse](https://www.youtube.com/channel/UCPshfUdjkP5dzONwbAkihHg) Is a Russian Black MIDI Maker which can Make Black MIDI's, Livestream, Random Comments, Tutorials and even much more, He's profile picure has Pasteled ellipse background with the dark green "PE" text inside of it, it is the most best Black MIDI YouTube channel that we never seen in 2017. And Now the most Single-Ranked Processor YouTube Channel Is [SwordFishTheChordedPlayer1](https://youtube.com/c/sftcp1system). [SwordFishTheChordedPlayer1](https://youtube.com/c/sftcp1system) is an Single-Ranked Processor name as the default Mope.io Swordfish. [SwordFishTheChordedPlayer1](https://youtube.com/c/sftcp1system) was created in 18 December 2017 (Date in Cristmas), and we are using it for Dream-Reality Content.
-### Links
+### About me:
+Logo Editing Master is a Widely-Mature Foundation For #Everyone Servers. It can do Video Effects, Gaming, Music and More with some swappable users to Experience YouTube a Reality.
+First I joined YT in 6 November 2018 as Scratch (SGDF HD), but now the Channel, Name, Art and Image have Changes up, for any.
+
+### What is #Everyone Servers?
+#Everyone Servers is a Really Widely-Mature Foundation, it contains some swappable channels that we need to care with. 
+
+### How about Mope.io Profile icons?
+Mope.io Animal icons are also important to YouTube, because they need to get some fun and they needed to upload his videos into YouTube. Those Mope.io icons are in vector art.
+
+### How do you got Community Tab?
+I just reached 1k subscribers and i'm really happy about it
+
+### What am I?
+- I'm just a Hippo
+- I upload videos
+- I send posts on YT
+
+### Social
     SoundCloud Profile: https://soundcloud.com/logoeditingmaster-es
     NPMjs Profile: https://www.npmjs.com/~logo_editing_master
     YouTube Channel: https://www.youtube.com/c/LogoEditingMaster/
